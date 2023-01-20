@@ -1,6 +1,8 @@
 Zeus-Spoofer
 These kid use applecleaner to clean their fortnite shit, what you mean skid? :O
 
+btw thanks 
+
 Proof of them pasting:
 ![cleaners](https://user-images.githubusercontent.com/106334213/211888165-70d8ad25-2490-4487-b256-9fb5f5ccde58.PNG)
 
